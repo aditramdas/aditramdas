@@ -7,5 +7,5 @@ Hey there, I am Adith Ramdas
 - 😄 Pronouns: I don't care what you add to my name.
 - ⚡ Fun fact: I like to music in all forms. I sing, and play piano. Connect with me for any help or ideas for collaboration and I would be happy :)
 
-<img src="https://user-images.githubusercontent.com/68638084/140784917-5dd72146-531e-4c3d-aff8-958340b9d257.gif" width="250" height="250"/>
+<img src="https://user-images.githubusercontent.com/68638084/140784917-5dd72146-531e-4c3d-aff8-958340b9d257.gif" width="100" height="70"/>
 
