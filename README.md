@@ -5,7 +5,7 @@ Hey there, I am Adith Ramdas
 - 💬 Ask me about anything and I will find an answer for you :) 
 - 📫 How to reach me: [Facebook](https://www.facebook.com/adit.ramdas) , [Instagram](https://www.instagram.com/aditramdas/)
 - 😄 Pronouns: I don't care what you add to my name.
-- ⚡ Fun fact: I like to music in all forms. I sing, play piano and sleep.  Connect with me for any help or ideas for collaboration and I would be happy :)
+- ⚡ Fun fact: I like music in all forms. I sing, play piano and sleep.  Connect with me for any help or ideas for collaboration and I would be happy :)
 
 
 
